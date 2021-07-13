@@ -10,6 +10,3 @@ I am currently 16 years old, and I live in Bavaria(Germany)
 - Email: [kontakt@antonstech.de](mailto:kontakt@antonstech.de)
 - Private Email: [anton@antonstech.de](mailto:anton@antonstech.de)
 
-Or you just join the Discord Server :) 
-
-[discord.gg/bHQGfxFzhQ](https://discord.gg/bHQGfxFzhQ)
