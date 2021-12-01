@@ -7,5 +7,4 @@ I am currently 16 years old, and I live in Bavaria(Germany)
 ### Contact Me:
 - Discord: DCGALAXY#9729
 - Email: [kontakt@antonstech.de](mailto:kontakt@antonstech.de)
-- Private Email: [anton@antonstech.de](mailto:anton@antonstech.de)
 
